@@ -1,1 +1,1 @@
-hi
+:japanese_goblin:
